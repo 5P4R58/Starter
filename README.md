@@ -1,2 +1,3 @@
 # Starter
 Starting the journey......
+fuck u
